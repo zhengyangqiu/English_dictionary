@@ -11,6 +11,21 @@ in due course---在适当的时候
 renovation--革新
 bespoke adj--made for a particular customer or user. 
 bespeak v ===indicate
+loose motion 拉肚子
+mood 情绪
+bowel 肠
+loose motion 拉肚子 ==diarrhoea
+flat tire----漏了气的车胎
+tire 车胎
+subliminal
+fallback----an alternative plan that may be used in an emergency.
 
+cum---射精
+
+plug 插头
+
+bump into sb
+
+common ground 共同点
 
 
