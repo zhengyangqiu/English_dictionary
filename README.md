@@ -28,4 +28,32 @@ bump into sb
 
 common ground 共同点
 
+panic
+stripe  条纹
+
+picnic 野餐
+redundant 多余的
+tripods 三脚架
+trigger 触发器
+Recurring Payments 固定开支
+Compatible with  与。。。相匹配
+
+Recur 再次发生v
+moderator  裁判 调解人
+
+identifiable
+cardio 有氧运动
+backlash 强烈抵制，，a strong negative reaction by a large number of people, especially to a social or political development.
+
+
+impractical 不切实际的
+consuming 消耗
+split  分摊 分裂
+debunk 揭穿真想v
+
+primer 启蒙书， 底层涂料
+
+
+
+
 
