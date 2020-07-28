@@ -51,7 +51,7 @@ consuming 消耗
 split  分摊 分裂
 debunk 揭穿真想v
 
-primer 启蒙书， 底层涂料
+
 
 
 
