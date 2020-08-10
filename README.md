@@ -447,3 +447,47 @@ jackpot
 
 hit the  jackpot 
 
+In full swing, 意思是正在全力进行当中。
+
+In spite of
+
+
+foodstuff
+
+Curtain
+
+corrupt
+broadband 
+satellite
+genuine
+
+renounce
+expatriate
+plaster
+bride
+rocks
+endurance
+diligence
+intolerance
+
+cult
+old hand
+
+
+veteran
+
+moonlight
+
+wholehearted
+Statesmanship 
+
+philanthropy
+enterprise
+enthusiastic
+
+badge
+
+
+variant- various
+
+
