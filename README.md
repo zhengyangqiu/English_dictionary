@@ -356,6 +356,11 @@ devastating 毁灭性的adj
 
   
 hoax
+pursue
+
+exotic
+activism
+demographic
 
 
 spike 尖头
@@ -368,6 +373,60 @@ crops
 lettuce 生菜n
 stranded 被滞留的adj
 martian 火星人n
+
+curvy
+kitten--- young cat
+
+
+backlash
+
+outrage
+literacy
+comply
+
+compliance
+
+Regulatory 
+
+Regulate ---v
+Panties
+
+Stitch
+
+running mate--竞选伙伴
+bluegrass--蓝草音乐
+
+
+FLEE--迅速离开; (尤指害怕有危险而) 逃避，逃跑;
+
+ literacy
+ 
+ nephew
+ 
+ diagnose--诊断v
+ impair
+ 
+ toss off
+ 
+ orient
+ 
+ 
+ oriental
+ 
+ hesitate
+ 
+ salutation
+ 
+ dissolve 溶解，解除，解散
+ 
+ karma
+ 
+ 
+
+
+matcha
+
+
 the martian 火星救援n
 dmed--send (someone) a private message on social media, especially Twitter
 foremost 最重要的adj
@@ -489,5 +548,11 @@ badge
 
 
 variant- various
+powder 
+
+authentication
+
+anthem
+
 
 
