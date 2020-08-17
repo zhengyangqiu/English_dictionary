@@ -540,6 +540,21 @@ moonlight
 wholehearted
 Statesmanship 
 
+trap
+
+starring from 由。。主演
+
+bulletproof
+
+Hurricane
+castrate
+
+rebel
+
+disown
+
+surge
+
 philanthropy
 enterprise
 enthusiastic
@@ -553,6 +568,55 @@ powder
 authentication
 
 anthem
+
+refurbished 
+
+ aider---协助者
+ 
+ Hilarious
+ 
+ curvy
+ 
+ thereafter
+ 
+ Confront 无法回避v 面对v
+  Blonde
+  
+  oslo
+  
+  ridicule
+  
+  newbie
+  
+  Whirlwind
+  
+  sediment
+  
+  Whirlwind
+  
+  mockery
+  
+  meteor 
+  
+  
+  jogger
+  
+  credential
+  
+  addicted
+  
+  
+  Reversible
+  
+  
+  boo
+  
+  trait
+  
+ 
+ 
+ 
+ 
 
 
 
