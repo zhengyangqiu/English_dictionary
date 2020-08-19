@@ -605,6 +605,10 @@ refurbished
   
   addicted
   
+  scrabble 
+  
+  
+  
   
   Reversible
   
@@ -622,6 +626,33 @@ refurbished
  
  anarctic
  
+ Pop-off definitions
+
+(intransitive, informal) To leave, and return in a short time. ... (intransitive, informal) To die suddenly.
+
+crop top 
+
+allowance
+
+Coincidence
+
+flex
+
+gloat
+
+Delicate
+
+coerce
+
+put the squeeze on
+
+
+A head shop is a retail outlet specializing in paraphernalia used for consumption of cannabis and tobacco and items related to cannabis culture and related countercultures. ... Some head shops also sell oddities, such as antique walking sticks and sex toys.
+
+impromptu
+
+Antarctic
+
  
  
 
