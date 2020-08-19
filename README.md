@@ -653,6 +653,15 @@ impromptu
 
 Antarctic
 
+ capacity
+ the maximum amount that something can contain.
+"the capacity of the freezer is 1.1 cubic feet"
+
+the amount that something can produce.
+"the company aimed to double its electricity-generating capacity"
+
+
+authenticity
  
  
 
