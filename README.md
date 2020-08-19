@@ -614,6 +614,13 @@ refurbished
   trait
   
  
+ lackluster
+ 
+ luster
+ 
+ Arctic 
+ 
+ anarctic
  
  
  
