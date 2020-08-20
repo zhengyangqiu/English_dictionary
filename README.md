@@ -662,6 +662,23 @@ the amount that something can produce.
 
 
 authenticity
+
+Reversible
+bandwidth 
+march on
+
+vinyl--黑胶唱片
+
+genuine
+
+sealed
+
+bib---a piece of cloth or plastic fastened round a child's neck to keep its clothes clean while eating.
+
+palette
+
+
+
  
  
 
