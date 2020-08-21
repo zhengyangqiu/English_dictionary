@@ -676,6 +676,8 @@ sealed
 bib---a piece of cloth or plastic fastened round a child's neck to keep its clothes clean while eating.
 
 palette
+catalog
+
 
 
 
