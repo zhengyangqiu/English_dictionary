@@ -678,6 +678,46 @@ bib---a piece of cloth or plastic fastened round a child's neck to keep its clot
 palette
 catalog
 
+Fandom
+
+chant
+
+cult
+
+Dynamite
+
+
+sample
+
+scout
+
+soak
+
+sock
+context
+
+spontaneous
+hand seals
+
+
+retrieve
+whipped out---pull something out with a sudden jerk
+
+malfunction
+
+dive
+
+needless to say
+
+inherited
+have a blast
+
+
+
+
+
+
+
 
 
 
