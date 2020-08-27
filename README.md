@@ -731,6 +731,29 @@ distort
 
 bow and arrow
 
+paralized
+
+
+ populate--v.	居住于; 生活于; 构成…的人口; 迁移; 移居; 殖民于; (给文件) 增添数据，输入数据;
+ 
+ receptacle 
+ 
+ 
+  superimpose
+  
+  attentive---注意的; 专心的; 留心的; 关心的; 肯帮忙的;
+
+iconic
+
+Goblet
+
+gateway---大门口; 门道; 出入口; (通往其他地区的) 门户; 途径; 方法; 手段;
+
+merchant
+
+ 
+ 
+
 
 
 
