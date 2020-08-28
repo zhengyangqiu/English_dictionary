@@ -326,6 +326,12 @@ paintwork 油漆面n
 exile 
 worshipper 拜神者n
 
+marl
+
+icy
+
+b-side ----the side of a pop single regarded as the less important one.
+
 intuitive
 lettuce 
 revoke 撤回v
