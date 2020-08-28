@@ -751,6 +751,19 @@ gateway---大门口; 门道; 出入口; (通往其他地区的) 门户; 途径; 
 
 merchant
 
+dummy order----伪（假，空，无操作）指令
+
+tweak
+
+A service level agreement or SLA is a formal document that defines a working relationship between parties for a service contract
+
+
+experimentation 
+
+
+desert-abandon (a person, cause, or organization) in a way considered disloyal or treacherous. 动词名词 发音的时候不同
+
+
  
  
 
