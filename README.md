@@ -764,7 +764,15 @@ experimentation
 desert-abandon (a person, cause, or organization) in a way considered disloyal or treacherous. 动词名词 发音的时候不同
 
 
+ lawn--an area of short, regularly mown grass in the garden of a house or park.
  
+ sour--adj.	酸的; 有酸味的; 酸腐的; 馊的; 阴郁的; 闷闷不乐的; 没好气的;
+v.	(使) 变坏，恶化; (牛奶等) 变味，酸腐;
+
+
+tweak verb--扭; 拧; 扯; 稍稍调整(机器、系统等);
+
+
  
 
 
