@@ -27,6 +27,7 @@ plug 插头
 bump into sb
 
 common ground 共同点
+billionaire 
 
 panic
 stripe  条纹
@@ -45,8 +46,32 @@ identifiable
 cardio 有氧运动
 backlash 强烈抵制，，a strong negative reaction by a large number of people, especially to a social or political development.
 shut-eye =sleep
+Genre
+feta
 
+boxing ring
+marshmallow
 
+carnival
+march
+
+newbie
+dopot---a place for the storage of large quantities of equipment, food, or goods.
+
+legitimate
+therapy
+
+zombie 
+impair 损害
+nozzel
+
+tilt--tilted
+mitt
+boxing ring
+  
+  
+
+piques
 
 impractical 不切实际的
 consuming 消耗
