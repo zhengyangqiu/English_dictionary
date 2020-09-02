@@ -32,6 +32,67 @@ billionaire
 panic
 stripe  条纹
 
+pay homage to 致敬v
+Demonstration 集会示威 演示 证明
+
+delimit 
+
+stitich中文
+
+precision
+
+nude--肉色的
+
+elite
+
+disheartened
+
+derma
+
+eviction 
+
+lukewarm
+
+rinse
+
+pat
+
+rough 
+
+irritation
+
+trade price 批发价
+
+tort 侵权行为(不构成刑事犯罪但可引起民事诉讼);
+
+browse
+
+optimal最佳的adj
+stockout 脱销
+
+overstock 滞销
+
+threhold门槛
+
+color Swatch
+
+Palette
+
+numb麻木的adj
+jet pack---喷气发动机组件
+
+jet lag
+nerve agent神经药剂
+
+vest
+
+
+
+
+
+
+abrasive
+
 picnic 野餐
 redundant 多余的
 tripods 三脚架
