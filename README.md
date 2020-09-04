@@ -866,6 +866,17 @@ tweak verb--扭; 拧; 扯; 稍稍调整(机器、系统等);
 
 chic
 
+social desirability社会期许 
+
+recall
+
+hunch直觉n
+recall-officially order (someone) to return to a place.bring (a fact, event, or situation) back into one's mind; remember.
+
+infer 推断 
+
+
+
 
 daffodil
 
