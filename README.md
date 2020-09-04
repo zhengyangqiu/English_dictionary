@@ -22,6 +22,12 @@ fallback----an alternative plan that may be used in an emergency.
 
 cum---射精
 
+Faceoff--对峙
+grind-研磨v
+
+reshore---(of a company) transfer (a business operation that was moved overseas) back to the country from which it was originally relocated.
+
+
 plug 插头
 
 bump into sb
