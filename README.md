@@ -71,6 +71,40 @@ trade price 批发价
 
 tort 侵权行为(不构成刑事犯罪但可引起民事诉讼);
 
+chevron-雪弗龙 v形线条
+
+finis---the end (printed at the end of a book or shown at the end of a film).
+
+blastoff
+ suspected violations
+ 
+ extremism 
+ 
+ tacky
+ teletype
+ 
+ CORRUPT
+ 
+ prone
+ 
+ absorb
+ 
+ sunscreen
+ 
+ soothe---gently calm (a person or their feelings).
+ 
+ harness
+ 
+ perspire
+ 
+ tenet--信条
+ 
+ platter  --大碟子
+ 
+ 
+
+
+
 browse
 
 optimal最佳的adj
