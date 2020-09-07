@@ -20,10 +20,16 @@ tire 车胎
 subliminal
 fallback----an alternative plan that may be used in an emergency.
 
+exclamation-!
+puzzel不解之谜 拼图
+
 cum---射精
 
 Faceoff--对峙
 grind-研磨v
+
+colorize--给黑白照片变彩色
+
 
 reshore---(of a company) transfer (a business operation that was moved overseas) back to the country from which it was originally relocated.
 
