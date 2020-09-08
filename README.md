@@ -375,6 +375,62 @@ underpin 巩固v
 
 advocate支持v，支持者n
 
+diarrhea
+
+dedicated
+
+integrity
+
+archery
+
+frisbee --飞盘
+
+condemn-express complete disapproval of
+braincell 
+
+garment
+
+equestrian
+
+fuel
+
+mesh--material made of a network of wire or thread
+
+vicious
+
+flip
+invoke---引用
+
+suspend-
+
+invocation--n.	(向神或权威人士的) 求助; 祈祷; 调用; 启用;
+
+alias
+trivial--
+
+residual
+time-and-a-half高出原标准半倍的工资
+Apparel
+
+
+TRINITY 
+
+outweigh
+
+i get the runs- diarrhea
+
+coined
+
+regent
+
+stoke---给…添加(燃料); 煽动; 激起
+turtle
+
+
+
+
+
+
 ego
 
 intense questions
