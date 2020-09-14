@@ -23,7 +23,77 @@ fallback----an alternative plan that may be used in an emergency.
 exclamation-!
 puzzel不解之谜 拼图
 
+keystroke
+
+rant
+
+ash
+
+hijack
+
+stabbed
+
+cockpit
+
+goosebumps
+
+paroff
+
+possess--有; 拥有; 具有(特质); 攫住; 支配; 控制;
+
+
+play with, consider, trifle with, flirt with, dally with, entertain the possibility of, amuse yourself with, think idly of He toyed with the idea of going to China.
+
+convict
+
+thrill 
+
+stroke-轻抚，抚摩(动物的毛皮); 抚摩(物体表面或头发等); 轻挪; 轻触; 轻拭;
+
+
+congee
+
+avocado
+
+hipster
+
+forerunner
+
+strap
+
+extract
+
+sway摇摆
+
+canoe
+
+wig
+
+strip-an act of undressing, especially in a striptease，，remove all coverings from.
+obsessed with--着迷于
+
+proxy---the authority to represent someone else, especially in voting
+
+fetish
+
+
+
+
+Manipulate
+
+
+foreshadow--预兆n
+take a trip--旅行
+
+
+
 cum---射精
+
+puffa--a type of thick padded jacket.
+
+flopped--(因疲惫而) 猛然坐下，沉重地躺下; (沉重、笨拙或不自主地) 落下，移动，悬挂; 砸锅; 完全失败;
+
+melange
 
 Faceoff--对峙
 grind-研磨v
