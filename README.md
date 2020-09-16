@@ -25,7 +25,40 @@ puzzel不解之谜 拼图
 
 keystroke
 
+cathedral 
+
+hammer-锤子
+tedious-乏味的adj
+sanity
+
+ 
+whine-哭哭啼啼
+
+creep in-悄然出现
+pay off--偿清
+
+Stock-taking--an assessment and record of the amount of stock held by a business.
+tackle
+fetch--取回
+
+revert-归还
+
+recap--概括
+
+retracted
+
+yacht--游艇
+
+
+
 rant
+
+sublimated
+
+slipover
+mouth off (about sth---to express your opinions too loudly and publicly:
+
+
 
 ash
 
