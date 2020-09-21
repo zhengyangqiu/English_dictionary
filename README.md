@@ -25,6 +25,9 @@ puzzel不解之谜 拼图
 
 keystroke
 
+disgrace-丢脸v
+
+
 cathedral 
 
 hammer-锤子
