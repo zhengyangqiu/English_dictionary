@@ -31,6 +31,150 @@ hammer-锤子
 tedious-乏味的adj
 sanity
 
+caribbean---加勒比海地区
+
+meteor--流星
+
+comet--彗星
+discrepancy -不一致的
+jackal-胡狼
+patch-补丁
+sapporo--札幌
+tagline --a catchphrase or slogan, especially as used in advertising, or the punchline of a joke.
+
+veer off
+
+bid
+embrace
+
+brace--(为困难或坏事) 使作准备
+
+lounge--lie, sit, or stand in a relaxed or lazy way.
+
+
+inhibition--a feeling that makes one self-conscious and unable to act in a relaxed and natural way.
+hyper--hyperactive or unusually energetic
+
+incognito--匿名 adj
+carpenter-木匠
+
+Keyring-钥匙环n
+
+sled=sledge 雪橇
+
+scrum--a disorderly crowd of people or things.
+
+Refurbish--再装修v
+Hockey-曲棍球
+
+at stake--处于危险境地
+loom--织布机n 赫然耸现v
+
+chatty-爱说话的
+Heritage--遗产
+
+honk鸣喇叭
+horn-角
+go places-成功
+
+karabiner
+
+
+cords--粗线
+
+heritage-遗产
+Telematics--计算机信息通讯(学);
+
+beam-光束
+
+tight
+intercepted
+freak out
+
+ladybug
+
+
+cornrows
+
+
+status quo
+
+aura气质
+
+fixate---cause (someone) to develop an obsessive attachment to someone or something.
+
+regulatory body--监管当局
+
+ committer
+ 
+ 
+ prolific 
+ 
+ Humidifier--加湿器
+ 
+tank--n.	(贮放液体或气体的) 箱，槽，罐; 箱(或桶等)所装之物; 一箱(或一桶等)的量; 坦克;
+defective
+
+bristle
+abrasive
+
+worn out
+
+splay
+
+rotate
+
+flare
+
+quardrant
+
+defective-有缺陷的adj
+knob
+
+
+over the course (of the day): during, throughout (the day)
+bizarre
+
+counter-intuitive
+
+
+intuitive
+
+bow-蝴蝶结，弓箭
+
+ rum-甜酒
+ 
+ a morning or early afternoon event at which for a set price you get a certain number of courses and unlimited alcohol. We've found some of the best bottomless brunch deals in London for you to dive right into.
+
+
+humble-贬低v
+valuation-估价v
+dawn 黎明
+
+mud泥浆n
+cliché -陈词滥调
+
+waffle1
+
+scenery==landscape
+
+aroma
+diffusion
+
+ dismiss
+ 
+ diagnosis診斷
+ 
+ v-card. or V-card. noun. Slang. The condition of being a virgin; virginity: lost my v-card to my college sweetheart.
+ 
+ Rest assured [that] I will be there.
+
+
+missteps
+
+
+A weeb is a derisive term for a non-Japanese person who is so obsessed with Japanese culture that they wish they were actually Japanese.
+
  
 whine-哭哭啼啼
 
@@ -48,6 +192,14 @@ recap--概括
 retracted
 
 yacht--游艇
+
+incite煽动v
+
+
+
+sublimate-升华
+
+
 
 
 
