@@ -23,9 +23,56 @@ fallback----an alternative plan that may be used in an emergency.
 exclamation-!
 puzzel不解之谜 拼图
 
+sapphire-蓝宝石n
+inanimate-die
+
+
 keystroke
 
+roast-严厉批评 v
+paper clip-回形针
+carousel-传送带n
+tipping point-(个案积累终成大趋势的) 引爆点，爆发点;
+
+gracefully
+
 disgrace-丢脸v
+traverse
+Glossary-词汇表n
+
+omit 省略v
+
+Stipulations-规定n
+enable
+
+lag-滞后v
+alias
+
+jellybeans
+
+jar
+
+quilt-床罩
+
+companion
+compulsory-义务
+
+baseless-无根据的adj
+general assembly-全体大会
+withhold-拒绝v
+accuse-控告v
+
+
+
+count off-报数
+
+shorthand -速记
+
+mascot吉祥物
+
+
+
+
 
 
 cathedral 
