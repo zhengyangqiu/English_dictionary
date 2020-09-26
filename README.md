@@ -26,8 +26,63 @@ puzzel不解之谜 拼图
 sapphire-蓝宝石n
 inanimate-die
 
+streak
+numb 麻木的adj
+greedy-adj.	贪婪的
 
 keystroke
+
+practically=almost
+confront-与。。对峙v
+burnout -精疲力竭adj，燃料用尽
+
+impeccable-完美的
+caret
+
+coupon
+
+wide angle-广角
+
+disband解散
+
+piglet小猪
+
+pooh小熊维尼
+texting at the wheel-开车发短信
+
+pythonic way
+interviewer
+interviewee
+
+down the wrong way -(idiomatic, of food or drink) To go down the trachea (windpipe) in one's throat instead of the esophagus (the tube in the throat for swallowed food and fluids), typically resulting in coughing or choking. She took a big drink of milk and it went down the wrong way. She was coughing for the next two minutes.
+spill
+Concessionary -优惠的
+
+rookie--新手n
+edify-教化v
+orbit-轨道n
+anchorman-主持人
+
+cult
+
+lousy-非常糟糕的adj
+encrypt加密n
+civilization
+ponder
+
+desolate
+
+plunge
+authenticity
+
+A Glow Up is a mental, physical, and an emotional transformation for the better. Glow Ups can be both natural or planned
+
+complie-编写v
+Pythonic means code that doesn't just get the syntax right but that follows the conventions of the Python community and uses the language in the way it is intended to be used.
+
+unveiled-揭开v
+veiled-含蓄的
+
 
 roast-严厉批评 v
 paper clip-回形针
