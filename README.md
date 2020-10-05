@@ -23,8 +23,66 @@ fallback----an alternative plan that may be used in an emergency.
 exclamation-!
 puzzel不解之谜 拼图
 
+discredited-败坏…的名声; 使丧失信誉; 使丢脸; 使不相信; 使怀疑; 使不可置信
+transitive relation--传递关系n
+humidity-湿度n
+refurbish-装修v
+
+fellow 伙计
+mundane life
+
+uptick
+
+lag-滞后
+
+
+theorist
+clunky
+
+poetry
+
+bottleneck-瓶颈
+snippet
+
+delta-三角洲
+
+
+hoax
+
+parser-解析器
+syllabus
+
+A flat fee, also referred to as a flat rate or a linear rate refers to a pricing structure that charges a single fixed fee for a service, regardless of usage
+
+consecutive--连续不断
+
+obscure
+
+iterate-迭代(数学或计算过程，或一系列指令);v
+
+
+
+
+platinum
+
+
+encounter
+
+raise--提升; 举起; 提起; (使) 直立，站立; 增加，提高(数量、水平等);
+
+xtracurricular
+
+palatable
+
+concise
+
+
 sapphire-蓝宝石n
 inanimate-die
+mammals-哺乳动物
+penguin-企鹅
+comparators
+amateurs
 
 streak
 numb 麻木的adj
