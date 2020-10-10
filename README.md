@@ -31,6 +31,8 @@ refurbish-装修v
 fellow 伙计
 mundane life
 
+jungle ball
+
 uptick
 
 lag-滞后
