@@ -17,6 +17,15 @@ bowel 肠
 loose motion 拉肚子 ==diarrhoea
 flat tire----漏了气的车胎
 tire 车胎
+prodigy
+
+Cheer on, give moral support to, as in The fans were out rooting for their team, or I've been rooting for you to get that promotion. This expression may come from the British verb rout, which is used of cattle and means “bellow.”
+
+daunting
+
+Dispute
+
+tease
 subliminal
 fallback----an alternative plan that may be used in an emergency.
 
@@ -31,11 +40,143 @@ refurbish-装修v
 fellow 伙计
 mundane life
 
+scented
+diffuser
+reed
+fragrance
+
+absorb
+
+stopper
+
+immersed
+
+soaked
+
+optimum
+
+lifespan
+
+imperative 
+
+persistent
+
+
+gigantic
+concurrency
+
+sanitize
+
+eureka
+
+tragedy-悲剧的adj
+
+gauge
+
+Vetting 
+
+depot
+
+deed poll--a legal deed made and executed by one party only, especially to formalize a change of a person's name.
+liaise
+
+handy 
+
+underscore--在…下面划线; 强调; 着重说明;
+
+
+poem-诗歌n
+testify
+facilitator--assertive
+
+screw up
+
+
+influx-涌入
+
+outlaw
+
+tab--n.	标签; 签条; 突耳; 凸舌; (待付的) 账单，账款; 费用; (尤指) 餐厅账单; 药片，药丸(指毒品);
+
+Cracker
+
+
+highbinder-恶棍
+
+woozy-头晕的adj
+coolie-苦力
+demons-恶魔
+rig-(以不正当的手段) 操纵，控制
+sarcastic
+
+weld
+
+conquer-占领v
+
+trivial
+legibility-清晰度n
+bracelet-手环
+adware
+
+
+by all means-务必
+
+consecutive
+Embroidered
+
+floral-有花的adj
+hyper--既兴奋又紧张的adj
+humility
+humidity
+
+long-winded--冗长枯燥的
+winded-v.	使喘不过气来
+
+candidacy
+
+Vampire
+
+ goof around
+
+sensation
+
+offset-抵消
+replicate-复制v
+beforehand
+
+graffiti-涂鸦n
+comprehension-理解力n
+so forth
+
+enlist--争取，谋取(帮助、支持或参与); (使) 入伍; 征募; 从军;
+
+shady---背阴的; 阴凉的; 多阴的; 成荫的; 可疑的; 鬼祟的; 非法的;
+
+A scrap is a little leftover bit of something. A final meaning of the noun scrap is "fight," as in "I got into a scrap with my brother." Scrap also has a verb form that means "discard." When you scrap your plan to move to the Bahamas, that means
+adjacent
+
+layout
+cringe
+denote
+terrain
+
+firebreak-防火墙
+
+intercept
+
+
+enchanting
+
+wormhole
+
+alarmist
+
 jungle ball
 
 uptick
 
 lag-滞后
+dissolve-解散，溶解v
 
 
 theorist
