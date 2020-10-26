@@ -25,6 +25,92 @@ daunting
 
 Dispute
 
+tone down-使（言辞）温和v
+concatenate-连在一起adj,v
+dispatch--send off to a destination or for a purpose
+dispenser--分配器
+delta-三角洲n
+An executable is a file that contains a program
+
+scaffold
+
+boilerplate-压板文件n
+robust -strong and healthy;
+analogy
+inversion -倒转
+
+A weeb is a derisive term for a non-Japanese person who is so obsessed with Japanese culture that they wish they were actually Japanese.
+very playful or lively. informal : sexually playful or excited. See the full definition for frisky in the English Language Learners Dictionary. frisky. adjective.
+Nipple
+
+bark
+tedious
+
+tile-瓷砖n
+immigrate
+
+booty-战利品
+wanker-下流的人
+cumbersome--大而笨重的
+concurrent
+
+receptionist-接待员n
+envy-嫉妒n
+discontented-不满足的adj
+grind--reduce (something) to small particles or powder by crushing it
+preserve 
+
+embroidery-刺绣v
+
+duplication--n
+ganster-黑道n
+astrology
+
+suspension
+
+sumptuous
+
+alphabetical
+
+Powerblock Adjustable Kettlebell 
+
+raffle
+
+ potion
+ cure
+ elixir
+ 
+ stamina 
+ 
+ stew--炖的菜
+ 
+ roster-获选名单n
+ tarot
+ 
+ randomize --使随机化v
+ 
+ slant
+ scrabble
+ 
+ plausible--合理的
+ transcribe
+ ignite
+ stir-fry
+/ˈstəːfrʌɪ/
+
+
+facade-正面的adj
+Banshee
+
+Peaky Blinders
+
+hustler-妓女
+in limbo
+credited with
+
+
+
+
 tease
 subliminal
 fallback----an alternative plan that may be used in an emergency.
