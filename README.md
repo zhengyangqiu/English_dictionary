@@ -43,6 +43,8 @@ A weeb is a derisive term for a non-Japanese person who is so obsessed with Japa
 very playful or lively. informal : sexually playful or excited. See the full definition for frisky in the English Language Learners Dictionary. frisky. adjective.
 Nipple
 
+
+
 bark
 tedious
 
