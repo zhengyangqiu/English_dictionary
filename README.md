@@ -25,6 +25,55 @@ daunting
 
 Dispute
 
+Gamification
+
+alphanumeric--含有字母和数字的
+delimited
+
+sluggish
+
+retrieve
+
+jersey--参赛者运动衫
+
+One meaning of the phrase 'to give someone a lift' is to boost their spirits. For example: My colleagues came to see me when I was in hospital - it really gave me a lift. Let's take some flowers when we go to visit Grandma, to give her a lift
+bare-of a person or part of the body) not clothed or covered.
+
+imcompatible
+
+disbelief-怀疑n
+
+contraction-收缩n
+ruthless
+superstition--
+
+spectrum
+
+On the contrary
+
+Migrate-迁移v
+
+
+
+invoke-援引
+
+conventional
+
+exemplify
+
+obsolete
+
+
+physicist
+
+at stake
+
+obstruct
+
+Scratch
+
+
+
 tone down-使（言辞）温和v
 concatenate-连在一起adj,v
 dispatch--send off to a destination or for a purpose
