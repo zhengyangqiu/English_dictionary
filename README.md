@@ -23,6 +23,127 @@ Cheer on, give moral support to, as in The fans were out rooting for their team,
 
 daunting
 
+snood
+
+credentials
+
+vibrate-振动
+
+decouple
+
+soar
+
+bandana
+
+
+pirate
+
+aka--Also Known As
+
+caching	
+
+v.	匿藏，隐藏(尤指武器); 把(数据)存入高速缓冲存储器; 高速缓存;
+[词典]	cache的现在分词;
+
+
+
+endure
+rift
+
+My hands are tied 的解释：我束手无策，我无能为力 。
+
+winery
+
+humor
+
+Confectionery
+
+favourable
+
+inferences
+chew gum
+corrlecte 
+heightened
+hippocampus
+
+recollection
+pond
+
+long-haul 
+interpretation-解释n
+meagre
+
+possess
+steering wheel
+
+at the expense of--以。。为价格
+long-standing
+
+vaguely
+catering
+cater
+anecdote
+
+composed
+persevere
+
+daunted
+
+chase up
+
+adverse
+
+scant
+passive
+
+terror 
+
+synagogue
+
+
+lunatics
+
+behead
+
+
+
+
+ ambiguous
+ 
+ enslave
+ 
+ Electoral 
+ convictions--定罪
+ 
+ procurement
+ 
+ fury
+ 
+ widening participation---广泛参与
+ 
+ fatigue-疲劳n
+ 
+
+
+raid--突击检查v
+ally1
+
+desperate
+
+premise
+substantiatede--证实
+
+undetermined
+
+improvise
+
+rotten
+
+bunkhouse--a building offering basic sleeping accommodation for workers.
+
+captors
+
+gloat
 Dispute
 
 Gamification
