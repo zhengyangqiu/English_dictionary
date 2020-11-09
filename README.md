@@ -25,6 +25,124 @@ daunting
 
 snood
 
+distinct
+
+disconcerted
+
+
+republican
+
+projected-预测
+
+poll-投票箱
+ballot-选票
+
+nail-biter表示特别紧张刺激的一个事情，nail-biting是它对应的形容词，表示紧张刺激的。
+
+halt
+
+Shadow banking--影子银行n
+frankly
+
+limb 
+
+tally--a current score or amount.
+
+snowflake
+
+chip away
+
+Caterpillar
+
+be toast, Slang. to be doomed, ruined, or in trouble: If you're late to work again, you're toast!
+
+gummies
+
+accordion
+
+miserable
+
+entrepreneurial
+
+essential
+
+ avail
+ 
+ undertake
+ 
+ goggles
+ 
+ magnificence
+ 
+ ideology
+ 
+ half-hearted--半心半意
+ 
+ stillborn-夭折的adj
+ ritual
+ 
+ ally
+ flam
+ 
+ flammable--易燃的
+ insoluble-无法解决的
+ 
+ reinstate
+ 
+
+
+tumble
+
+Funeral
+
+clout
+ 
+ surreal
+
+
+nominee
+
+supreme
+
+House of Representatives
+
+senate
+
+destruction
+
+knife-edge-- very tense or dangerous situation.
+go to the wire用作动词的意思：（美国俚语）(比赛或竞争)直到最后,到最后一刻
+anesthesia
+shift
+
+chap-man
+lawsuit
+
+batch
+
+Uphill
+
+
+
+
+interpretation
+
+comprehension
+
+
+beanbag--豆袋坐垫
+
+redundant 
+
+crayons
+
+crackle
+
+
+
+
+
+
 credentials
 
 vibrate-振动
