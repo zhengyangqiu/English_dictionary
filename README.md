@@ -22,7 +22,26 @@ prodigy
 Cheer on, give moral support to, as in The fans were out rooting for their team, or I've been rooting for you to get that promotion. This expression may come from the British verb rout, which is used of cattle and means “bellow.”
 
 daunting
+ponder-琢磨
+criteria
 
+disarray
+
+impulse
+
+prominent
+
+in a state-凌乱的adj
+stint -节省
+percentile
+
+cyan-青色
+
+rough paper
+
+rough
+
+presentable
 snood
 
 distinct
