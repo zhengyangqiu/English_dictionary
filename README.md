@@ -25,6 +25,10 @@ daunting
 ponder-琢磨
 criteria
 
+abundance
+
+
+
 disarray
 
 impulse
