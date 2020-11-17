@@ -39,6 +39,113 @@ in a state-凌乱的adj
 stint -节省
 percentile
 
+ramp-a sloping surface joining two different levels, as at the entrance or between floors of a building
+
+copycat--(尤为儿童用语，指无主见的) 模仿者; 抄袭者; 好跟人学的人
+accountable
+
+controversial--争论的
+foosball-桌上足球n
+skynet
+
+ethos
+
+forefront-前沿n
+satisfactory-fulfilling expectations or needs; acceptable, though not outstanding or perfect. adj
+perk
+
+Enthusiasm 
+
+occupant-居住者
+subtly-巧妙的
+deference
+
+adequatly-充分的
+passage-- a short extract from a book or other printed material., 过道
+consensus-一致n
+powered flight-动力飞行
+evolved
+excessive-过度的adj
+paradox
+rigged-以不正当的手段) 操纵 adj
+coined -创造v
+deskilling is the process by which skilled labor within an industry or economy is eliminated by the introduction of technologies operated by semi- or unskilled workers.
+
+champion拥护
+rigid--死板的
+strive for -争取v
+dehumanise-非人性化
+
+akin-类似的
+popularize
+
+slum meaning
+
+
+usurped
+
+thrive
+pamphlet
+
+wheat
+
+beverages
+
+brewed
+
+accordance ---一致n
+
+ cash register-=收音机
+ 
+ reluctant
+ 
+ pale
+ 
+ rehearse--排练，默诵; 
+ 
+ 
+competent
+
+decorative
+
+moan
+
+conscious-意识到的adj
+outskirts
+
+scenic
+
+
+insect
+
+terrestrial--aired 
+
+cul-de-sac--死胡同
+
+lengthen
+
+
+
+cadet
+
+cosmic
+blended
+
+pace
+
+
+
+regulated activities
+
+regulated 
+
+justified
+
+term address--A term-time address is where you will be living during the academic year whilst you are studying on your course.
+actuarial
+
+superficially-表面上
+
 cyan-青色
 
 rough paper
