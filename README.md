@@ -27,6 +27,97 @@ criteria
 
 abundance
 
+gross misconduct
+
+adjective. If you describe a person or their behaviour as nasty, you mean that they behave in an unkind and unpleasant way.
+
+manned 
+
+legislation
+
+outperform---perform better than.
+Tolerance-忍受n
+coverage
+crawl
+
+humidity
+
+unauthorized
+
+prospects 
+
+
+flustered
+
+Hand mixers are used to beat, whip, and combine ingredients, all requiring a smooth functioning set of blades that turn easily and consistently during the mixing process.
+
+whisk-搅拌v
+
+representative-代表n
+chain--链
+
+emerge 
+
+tumble drye-烘干机n
+
+newcomer-新手
+
+academically gifted
+
+adamant
+
+commentary
+
+surety-保证金n
+
+
+
+
+free-flowing debate 
+
+At the outset
+
+incorporated 
+
+social mobility
+
+
+educational disruption
+
+gross misconduct--严重渎职
+satisfactorily
+
+Senior Registrars
+
+associated security
+generous pay
+
+entities
+
+prosper
+
+green bonds--	纽带; 联系; 关系; 契合; 债券; 公债; 保释金
+
+
+flag up 
+
+
+Counterproductive
+utensils and silverware
+
+shelved
+
+inter-departmental
+
+
+Twisting 
+
+queries--查询，疑问
+
+advocate--主张v，n
+impression-an idea, feeling, or opinion about something or someone, especially one formed without conscious thought or on the basis of little evidence.
+
+
 
 
 disarray
