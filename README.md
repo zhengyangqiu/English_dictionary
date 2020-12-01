@@ -19,6 +19,7 @@ flat tire----漏了气的车胎
 tire 车胎
 prodigy
 
+whirlwind
 
 
 Cheer on, give moral support to, as in The fans were out rooting for their team, or I've been rooting for you to get that promotion. This expression may come from the British verb rout, which is used of cattle and means “bellow.”
