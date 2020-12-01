@@ -19,11 +19,199 @@ flat tire----漏了气的车胎
 tire 车胎
 prodigy
 
+
+
 Cheer on, give moral support to, as in The fans were out rooting for their team, or I've been rooting for you to get that promotion. This expression may come from the British verb rout, which is used of cattle and means “bellow.”
 
 daunting
 ponder-琢磨
 criteria
+
+Discretion
+
+rehearsal
+
+rehearse
+
+hit song
+
+soak-浸泡
+
+spat with-争吵v
+
+daunting--令人生畏的
+
+stage fright--怯场(演员出场前的紧张不安);
+
+Godspeed
+
+frame--produce false evidence against (an innocent person) so that they appear guilty.
+
+Acting mayor is a temporary office created by the charter of some municipal governments.
+
+not the carrot but stick
+cello
+
+gimmicks
+
+resilience
+
+psychometric
+
+level-headed-冷静的adj
+
+
+quick temper-急脾气n
+fleece-羊毛
+
+automotive--汽车行业
+retail--零售
+
+enthusiastic
+
+logistics
+
+copter
+
+acquisition--收获
+
+spare
+
+understatement
+
+expansionist
+
+extra-群众演员
+incur-招致v
+inevitably
+
+functionality-功能n
+mitigating
+
+refurb
+
+energetic
+
+traits-特征n
+factorial-阶乘n
+
+comprise
+
+route
+
+kilo
+
+
+barbell
+
+bandwidth
+
+travesty
+
+quota
+
+crappy--of extremely poor quality.
+
+scrap
+
+wizard--(in legends and fairy tales) a man who has magical powers.a help feature of a software package that automates complex tasks by asking the user a series of easy-to-answer questions.
+dedicate
+
+erode
+
+headroom--the space above a driver's or passenger's head in a vehicle.
+
+Frisbee-飞盘n
+sew 
+
+martial arts
+
+
+maggots
+
+semi-final
+ legitimate
+
+
+hustle-push roughly; jostle,
+
+
+
+notable
+
+digestive
+
+well-rounded-面面俱到的adj
+rapport
+tooltip
+
+archer
+
+spatial
+exterior
+demeanour
+plumbing
+
+roster
+
+implication
+
+distinctly
+
+
+
+
+dismantle
+
+inexperienced
+
+pat down--(of a police officer or security official) pass the hands over someone's clothing in a search for concealed items such as weapons or illegal drugs.
+disgruntled
+
+informal. : to lose control and start to behave in a way that is not normal or acceptable He was a promising student but he went off the rails after he started taking drugs.
+promising--showing signs of future success adj
+
+subsidiary-附属的adj
+requisite
+
+time frame---a specified period of time in which something occurs or is planned to take place.
+belly肚子
+
+Tummy is a childish way of saying stomach. ... The stomach is an organ of the body where food is digested. The belly is below the stomach where some other organs and the intestines are located. The belly is also called the gut.
+miraculous
+
+patent attorney
+
+dpersevere-坚持不懈的adj
+
+
+
+
+
+
+
+
+fuchsia
+
+cohort
+breach-违背v，n
+
+
+rope
+hurdler
+
+intimidate
+
+
+
+
+fright
+
+footman
+flee-run away
+provoking
+treaty
+ordeal
 
 abundance
 
