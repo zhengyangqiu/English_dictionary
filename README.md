@@ -34,6 +34,22 @@ rehearsal
 
 rehearse
 
+diabetes
+
+melange
+
+with flying colors, with an overwhelming victory, triumph, or success:He passed the test with flying colors.
+
+bathtub
+
+diligent
+
+turtle
+
+
+
+
+
 hit song
 
 soak-浸泡
