@@ -19,6 +19,8 @@ flat tire----漏了气的车胎
 tire 车胎
 prodigy
 
+fruition
+
 whirlwind
 
 
