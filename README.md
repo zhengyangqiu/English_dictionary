@@ -21,6 +21,10 @@ prodigy
 
 fruition
 
+sully--玷污v
+
+Empty-promise definitions. Filters. (idiomatic) A promise that is either not going to be carried out, worthless or meaningless. noun.
+
 whirlwind
 
 
@@ -31,6 +35,30 @@ ponder-琢磨
 criteria
 
 Discretion
+
+proceeding--action taken in a court to settle a dispute.
+
+riot-暴动v
+
+extraordinary--非凡adj
+grasp--把握v
+
+tempo--拍子n
+
+hockey-曲棍球n
+considerable--相当多(或大、重要等)的adj
+adaptable--适应性强adj
+fraud
+
+succession
+
+orbit-轨道n
+obese-肥胖adj
+pomodoro-番茄
+denote-意味着
+
+
+
 
 rehearsal
 
