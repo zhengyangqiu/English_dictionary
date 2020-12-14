@@ -18,6 +18,126 @@ loose motion 拉肚子 ==diarrhoea
 flat tire----漏了气的车胎
 tire 车胎
 prodigy
+Heads or Tails-正面还是反面n
+
+chess
+
+competence
+acumen--the ability to make good judgements and take quick decisions.
+reckless-鲁莽的adj
+animated--full of life or excitement; lively.
+
+top notch --of the highest quality
+
+gauge
+
+
+rhyming--押韵
+
+ramble--talk or write at length in a confused or inconsequential way.
+
+articulate--说出
+
+concise--简洁adj
+roulette--轮盘赌
+
+offset--抵消v
+deterministic
+
+
+nail
+tweak--AL
+improve (a mechanism or system) by making fine adjustments to it
+
+tolerance--宽容; 容忍
+
+zone out--fall asleep or lose concentration or consciousness.
+streamline
+concrete
+
+A sneak peek is an opportunity to see or experience something before it is officially presented or released to the public.
+
+rehearse--排练
+pillar
+
+onus--责任n
+
+prestigious-有威望的adj
+prejudices--偏见
+
+donkey
+
+triple
+
+moisture
+
+acid
+
+hydrate
+
+
+resourceful---having the ability to find quick and clever ways to overcome difficulties.
+
+cumulative-累积的
+
+
+furious--extremely angry.
+
+caretaker--a person employed to look after a building.
+
+bloc-- group of countries or political parties with common interests who have formed an alliance
+
+pitfall
+flawless
+likeable
+
+binge watching
+
+
+reliability-可靠性n
+gist--要领n
+
+commnute-通勤n
+
+hurdle--a problem or difficulty that must be overcome,one of a series of upright frames over which athletes in a race must jump.
+
+
+
+
+
+
+
+sinus
+
+congestion
+
+stuffy
+
+condescending-having or showing an attitude of patronizing superiority.adj
+
+sustain--承受
+
+chronological--(of a record of events) following the order in which they occurred.
+
+blender--a person or thing that mixes things together, in particular an electric mixing machine used in food preparation for liquidizing, chopping, or pureeing.
+
+
+
+
+centralized
+
+scientific notation---科学计数型
+
+remedy
+
+presence
+
+platinum
+
+A writing-up period is a specific registration status for research students who are entering (or in) their final year, have completed the active research part of their degree and need time to prepare their thesis before it is submitted for examination.
+
+To resolve is to settle or make a decision about something — often formal. A college's board of directors might resolve to recruit more minority students. As a noun, resolve refers to a strong determination to do something.
+
 
 fruition
 
