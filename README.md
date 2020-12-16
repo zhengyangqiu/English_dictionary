@@ -33,6 +33,21 @@ franchise
 dysfunctional-功能失调的adj
 lambast
 
+deputy
+
+outburst---a sudden release of strong emotion. n
+philosophy
+
+contractor
+/kənˈtraktə/
+validity--合法性n
+
+prohibition
+
+House of Commons-n.	(英国)下议院; (加拿大)众议院; 下议院大楼
+racial-种族的adj
+reprimand
+
 doctored--篡改
 
 secondment
