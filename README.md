@@ -22,6 +22,31 @@ fallback----an alternative plan that may be used in an emergency.
 
 cum---射精
 
+
+breezy--pleasantly windy adj
+
+breeze-微风n
+acquisition
+
+franchise
+
+dysfunctional-功能失调的adj
+lambast
+
+doctored--篡改
+
+secondment
+
+speedy-迅速的adj
+tutee-学生n
+wig
+
+intimacy---close familiarity or friendship 
+
+
+
+
+behead
 plug 插头
 
 bump into sb
