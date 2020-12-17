@@ -22,6 +22,10 @@ fallback----an alternative plan that may be used in an emergency.
 
 cum---射精
 
+purity
+
+footfall
+
 
 breezy--pleasantly windy adj
 
