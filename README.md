@@ -20,6 +20,16 @@ tire 车胎
 prodigy
 Heads or Tails-正面还是反面n
 
+
+logarithm--对数
+
+maternity
+
+pregnant
+
+martial
+
+
 chess
 
 competence
