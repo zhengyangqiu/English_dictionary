@@ -20,15 +20,27 @@ tire 车胎
 prodigy
 Heads or Tails-正面还是反面n
 
+duet--a performance by two singers, instrumentalists, or dancers.
 
-logarithm--对数
+exhibition--展览
 
-maternity
+one-off--done, made, or happening only once.
+philosopher--哲学家
 
-pregnant
+naive--幼稚
 
-martial
+weary--feeling or showing extreme tiredness, especially as a result of excessive exertion.adj
 
+diphthong
+
+
+
+
+
+
+demonstrate--clearly show the existence or truth of (something) by giving proof or evidence.v
+
+A micromanager is a boss or manager who gives excessive supervision to employees. A micromanager, rather than telling an employee what task needs to be accomplished and by when will watch the employee's actions closely and provide frequent criticism of the employee's work and processe
 
 chess
 
