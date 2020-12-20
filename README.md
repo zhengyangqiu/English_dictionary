@@ -66,6 +66,22 @@ roulette--轮盘赌
 offset--抵消v
 deterministic
 
+novelty--the quality of being new, original, or unusual.
+
+inherent-existing in something as a permanent, essential, or characteristic attribute.
+participate-v.	参与
+anticipate
+
+unconscious--无意识
+
+accidentally--偶然adv
+
+cryptocurrency--加密货币
+encrypt--加密v
+
+
+
+
 
 nail
 tweak--AL
