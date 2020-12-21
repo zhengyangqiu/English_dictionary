@@ -28,6 +28,17 @@ one-off--done, made, or happening only once.
 philosopher--哲学家
 
 naive--幼稚
+obesity-肥胖n
+reaffirm--重申
+
+flee--逃跑v
+
+winning penalty
+
+
+
+cane-手杖
+
 
 weary--feeling or showing extreme tiredness, especially as a result of excessive exertion.adj
 
@@ -65,22 +76,6 @@ roulette--轮盘赌
 
 offset--抵消v
 deterministic
-
-novelty--the quality of being new, original, or unusual.
-
-inherent-existing in something as a permanent, essential, or characteristic attribute.
-participate-v.	参与
-anticipate
-
-unconscious--无意识
-
-accidentally--偶然adv
-
-cryptocurrency--加密货币
-encrypt--加密v
-
-
-
 
 
 nail
