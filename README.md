@@ -20,6 +20,13 @@ tire 车胎
 prodigy
 Heads or Tails-正面还是反面n
 
+extracurricular
+
+associate
+
+
+thrive
+
 duet--a performance by two singers, instrumentalists, or dancers.
 
 exhibition--展览
@@ -38,6 +45,11 @@ winning penalty
 
 
 cane-手杖
+
+envy-嫉妒v
+discontented--dissatisfied, especially with one's circumstances.
+
+
 
 
 weary--feeling or showing extreme tiredness, especially as a result of excessive exertion.adj
