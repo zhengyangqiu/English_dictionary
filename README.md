@@ -58,6 +58,19 @@ diphthong
 
 
 
+curricular
+
+exemption
+
+effortless--requiring no physical or mental exertion.
+
+carton
+
+perishable
+
+forefront
+
+
 
 
 
