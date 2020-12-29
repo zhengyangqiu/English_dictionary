@@ -28,6 +28,8 @@ leopard--豹子
 
 incognito--匿名 adj
 
+bird-eye view
+
 
 
 
