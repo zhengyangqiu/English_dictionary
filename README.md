@@ -30,6 +30,12 @@ incognito--匿名 adj
 
 bird-eye view
 
+Hedge fund--对冲基金
+
+undergo ---经历，经受(变化、不快的事等);
+
+
+
 
 
 
