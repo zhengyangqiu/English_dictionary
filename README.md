@@ -196,6 +196,15 @@ centralized
 
 scientific notation---科学计数型
 
+patch--a piece of cloth or other material used to mend or strengthen a torn or weak point.
+
+
+turn in---give something to someone in authority.
+
+
+
+
+
 remedy
 
 presence
