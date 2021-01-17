@@ -21,6 +21,185 @@ prodigy
 Heads or Tails-正面还是反面n
 
 extracurricular
+std-性病
+intervene
+
+vintage-酿酒
+underpin--支撑v
+
+down payment
+
+appreciate--rise in value or price
+
+recapitalisation- 资本重整
+credit plummets
+
+insurer
+
+credential--a qualification, achievement, quality, or aspect of a person's background, especially when used to indicate their suitability for something.
+tweak--improve (a mechanism or system) by making fine adjustments to it.
+avid--having or showing a keen interest in or enthusiasm for something.
+
+consecutive
+
+loft--a room or space directly under the roof of a house or other building, used for accommodation or storage.
+
+fictitious-虚构的adj
+spiffy
+
+render--呈现
+
+hurdles-障碍n，跨栏n
+
+beekeeper
+
+arithmetic-the branch of mathematics dealing with the properties and manipulation of numbers.
+thunderhead--雷暴云
+portends--be a sign or warning that (something, especially something momentous or calamitous) is likely to happen.
+cumulus--积云
+
+thick
+
+typographic-
+
+homie--哥们
+lenient--(of a punishment or person in authority) more merciful or tolerant than expected.
+replicate
+
+
+retaliation-报复n
+exhausting
+
+institutionally
+
+race row-赛道n
+in contrast
+
+explicitly
+
+implied
+
+consistent--一致的
+braise--炖v
+
+
+leaflet
+
+
+brutal--野蛮adj
+
+
+kettle--水壶n
+
+revolutionary--革命家
+federal-联合的
+erosion
+
+
+denim
+
+
+docklands
+
+auction-拍卖n
+
+illustrate
+
+stagnation--停滞n
+
+meritocracy
+
+decaffeinated==without caffeine
+syrup
+
+foam
+
+sprinkle
+
+chap
+
+
+stammer--口吃
+insurance claim
+knitwear--针织品
+fright
+
+paranormal
+
+
+hourglass---沙漏(玻璃容器，上部的沙子经一小孔漏到下部，全部漏完正好一小时);
+
+
+
+
+relief
+
+occurrence-an incident or event.
+non-disclosure保密的adj
+stunning-extremely impressive or attractive
+referral--an act of referring someone or something for consultation, review, or further action.
+
+trivial
+
+trousers
+
+Variant: A form or version of something that differs in some respect from other forms of the same thing or from a standard. Variation: A change or slight difference in condition, amount, or level, typically within certain limits
+
+placeholder
+
+fragments
+
+Web browsers are very lenient about how they interpret HTML. They work around small errors and omissions. The quizzes you have seen in this lesson have been relatively lenient as well. The HTML validator is intentionally stricter than actual browsers.
+
+decorator--a person who decorates something
+
+
+
+altitude--海拔n
+
+valleys--山谷
+comic
+
+Art Studio means a loft, room, group of rooms or building in which an artist works.
+
+adversity--feeling or showing that something is unworthy of consideration. adj
+
+multitude--a large number of people or things.
+
+adversity--逆境n
+
+preciously 
+wet bar---a bar or counter in the home for serving alcoholic drinks.
+
+clearance-official authorization for something to proceed or take place.
+heritage--遗产
+
+
+dismissive
+
+referendum--全民公决n
+
+strengthen--加强 v
+
+decisive--having or showing the ability to make decisions quickly and effectively. v
+
+state of the art--the most recent stage in the development of a product, incorporating the newest technology, ideas, and features.
+multitude
+
+uncharted--(of an area of land or sea) not mapped or surveyed.
+
+
+underwrite
+
+pledge-保证
+
+resilience-弹性n
+teleprompter
+
+subtly--in a manner that is so delicate or precise as to be difficult to analyse or describe.
+
+numerator
+denominator
 
 associate
 
