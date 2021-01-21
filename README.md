@@ -388,7 +388,7 @@ turn in---give something to someone in authority.
 
 
 
-
+symmetry--the quality of being made up of exactly similar parts facing each other or around an axis.
 
 remedy
 
@@ -396,9 +396,37 @@ presence
 
 platinum
 
+
+
+calibre--the quality of someone's character or the level of their ability.
+
+
+axis
+
 A writing-up period is a specific registration status for research students who are entering (or in) their final year, have completed the active research part of their degree and need time to prepare their thesis before it is submitted for examination.
 
 To resolve is to settle or make a decision about something — often formal. A college's board of directors might resolve to recruit more minority students. As a noun, resolve refers to a strong determination to do something.
+
+
+sophisticated
+
+
+dispatch
+
+
+sarcasm
+
+Creep means to move slowly and carefully, in order to avoid being heard or noticed. "they were taught how to creep up on an enemy". to CRAWL means to move slowly with your body on or close to the ground, or on your hands and knees, like my friend's baby ;-)
+
+tremendous
+
+
+
+mothballed--封存;
+prevail--战胜
+
+
+
 
 
 fruition
@@ -492,6 +520,19 @@ level-headed-冷静的adj
 
 quick temper-急脾气n
 fleece-羊毛
+
+
+withstand--remain undamaged or unaffected by; resist.
+resilient-(of a person or animal) able to withstand or recover quickly from difficult conditions.
+
+comprehend--grasp--understand
+
+
+savvy-- 领悟
+
+
+
+
 
 automotive--汽车行业
 retail--零售
