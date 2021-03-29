@@ -53,6 +53,15 @@ hurdles-障碍n，跨栏n
 
 beekeeper
 
+Band-Aid---权宜之计
+
+Aid-援助v
+
+hit up--请求v
+
+
+
+
 arithmetic-the branch of mathematics dealing with the properties and manipulation of numbers.
 thunderhead--雷暴云
 portends--be a sign or warning that (something, especially something momentous or calamitous) is likely to happen.
