@@ -138,6 +138,11 @@ paranormal
 
 hourglass---沙漏(玻璃容器，上部的沙子经一小孔漏到下部，全部漏完正好一小时);
 
+A plot is a graphical technique for representing a data set, usually as a graph showing the relationship between two or more variables
+
+plot-情节，阴谋
+
+
 
 
 
