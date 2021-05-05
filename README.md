@@ -17,6 +17,10 @@ bowel 肠
 loose motion 拉肚子 ==diarrhoea
 flat tire----漏了气的车胎
 tire 车胎
+
+rusty-生锈的adj
+
+
 prodigy
 Heads or Tails-正面还是反面n
 
