@@ -21,6 +21,23 @@ tire 车胎
 rusty-生锈的adj
 
 
+enterprise-公司n
+blazer
+
+conventional
+
+philosophy
+vacuum--Hoover
+
+ faint-hearted.
+ 
+ 
+ jet stream
+ 
+ drop off
+
+
+
 prodigy
 Heads or Tails-正面还是反面n
 
