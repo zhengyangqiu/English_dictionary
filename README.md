@@ -35,6 +35,36 @@ vacuum--Hoover
  jet stream
  
  drop off
+ 
+ 
+ clown
+ 
+ breeze
+ 
+ furlough
+ 
+ lead times---the time between the initiation and completion of a production process.
+ 
+ intensity
+ 
+ severity--严重程度 n
+ 
+ severe
+ 
+ eavesdrop--窃听v
+ 
+ distinctive-与众不同的
+ gotcha
+ 
+ oblique
+ 
+ jumbo--a very large person or thing.noun
+ 
+ replicate
+ 
+ rubric
+ 
+ 
 
 
 
