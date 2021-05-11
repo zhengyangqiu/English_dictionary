@@ -20,6 +20,8 @@ tire 车胎
 
 rusty-生锈的adj
 
+dedicate
+
 
 enterprise-公司n
 blazer
