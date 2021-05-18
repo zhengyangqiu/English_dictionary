@@ -18,6 +18,8 @@ loose motion 拉肚子 ==diarrhoea
 flat tire----漏了气的车胎
 tire 车胎
 
+reptile
+
 rusty-生锈的adj
 
 dedicate
