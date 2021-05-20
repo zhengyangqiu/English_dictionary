@@ -24,6 +24,14 @@ rusty-生锈的adj
 
 dedicate
 
+arc--弧形 n
+
+starburst
+
+thermometer 
+
+fatigue
+
 
 enterprise-公司n
 blazer
