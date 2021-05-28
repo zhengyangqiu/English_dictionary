@@ -32,6 +32,39 @@ thermometer
 
 fatigue
 
+blazer
+
+installation
+
+thus
+
+antigravity
+exclamation
+
+philosophy
+
+maple
+
+ceasefire--停火n
+palestinian--巴勒斯坦n
+paramedic
+
+propagate
+
+sophisticated--复杂的
+
+
+
+sandal 
+
+ember
+
+Eternal
+
+poetry
+
+prankster
+
 
 enterprise-公司n
 blazer
