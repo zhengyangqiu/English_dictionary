@@ -20,6 +20,45 @@ tire 车胎
 
 reptile
 
+rubric
+vague
+
+whisper
+
+"It is worth noting that" simply means. "here's something, which you should remember:" or. "here's something you should pay attention to:" or. "here's something that is worth reading and remembering:"
+
+explicitly
+
+jumbo
+
+knot
+storm-强攻v
+
+
+quartets
+tenor
+
+torture
+billiards
+
+poison
+
+factorial
+
+trophy
+
+inherent-固有
+ternary-三元
+fall through
+hierarchical
+
+paramount --首要的adj
+pluralization
+
+ellipsis--省略
+
+supremacy
+
 rusty-生锈的adj
 
 dedicate
