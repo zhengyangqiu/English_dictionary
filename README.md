@@ -16,6 +16,19 @@ mood 情绪
 bowel 肠
 loose motion 拉肚子 ==diarrhoea
 flat tire----漏了气的车胎
+
+
+theatergoers
+
+hoist
+
+asylum 
+
+quirky --诡诈的 adj
+
+
+
+
 tire 车胎
 
 reptile
