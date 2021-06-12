@@ -17,6 +17,59 @@ bowel 肠
 loose motion 拉肚子 ==diarrhoea
 flat tire----漏了气的车胎
 
+witchcraft
+
+Diplomat
+
+nuts-发狂的adj
+foreskin
+incontinence
+
+rusty--生疏 adj
+
+Brush Up复习v
+cleaver
+
+workaround---a method for overcoming a problem or limitation in a program or system.
+
+specificity
+
+bypass
+
+harness
+
+elite
+Vaginal
+ransom--赎金n
+
+savour
+
+archive
+
+dearer price meaning---nformal) expensive, costly, high-priced, excessive, pricey (informal), at a premium, overpriced, exorbitant Don't buy that one - it's too dear.
+
+a biased person favors one side or issue over another.
+
+levitate
+
+
+
+
+
+screw
+
+
+
+
+
+
+premiere
+
+
+premier
+
+Serenity
+
 
 theatergoers
 
