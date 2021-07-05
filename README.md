@@ -59,6 +59,8 @@ levitate
 screw
 
 
+spank
+striking
 
 
 
